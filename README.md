@@ -1,0 +1,1 @@
+# mintaz_projects
